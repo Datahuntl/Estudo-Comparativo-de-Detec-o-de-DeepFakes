@@ -1,0 +1,1 @@
+# Estudo-Comparativo-de-Detec-o-de-DeepFakes
